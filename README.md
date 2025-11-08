@@ -1,0 +1,2 @@
+# MindForgeAI
+PROJECT CATEGORY
